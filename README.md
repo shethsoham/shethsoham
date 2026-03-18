@@ -9,7 +9,7 @@
 
 - 🌱 I’m a graduate **in computer science.**
 
-- ⚡ You can connect with me **@ssheth1mtu.edu**
+- ⚡ You can connect with me **@sohamashishsheth@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
